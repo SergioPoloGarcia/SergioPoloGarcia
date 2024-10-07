@@ -26,7 +26,7 @@ I'm looking to collaborate on projects related to:
 - Sports analytics and performance tracking systems
 
 ### 🥋 Outside of Work
-When I'm not coding, I'm practicing **Muay Thai** or diving deep into fitness training and sports nutrition. I'm also an avid reader and follower of investment trends in the stock market.
+When I'm not coding, I'm practicing **Muay Thai**. I'm also an avid reader and follower of investment trends in the stock market.
 
 ### 📫 How to Reach Me
 - Email: sergio.polo.garcia21@gmail.com
