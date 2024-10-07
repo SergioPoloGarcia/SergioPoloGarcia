@@ -30,7 +30,7 @@ When I'm not coding, I'm practicing **Muay Thai** or diving deep into fitness tr
 
 ### 📫 How to Reach Me
 - Email: sergio.polo.garcia21@gmail.com
-- LinkedIn: [Sergio Polo García](https://www.linkedin.com/in/sergiopologarcia)
+- LinkedIn: [Sergio Polo García](https://www.linkedin.com/in/sergio-polo-garcía-b69b28252)
 
 ---
 
